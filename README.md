@@ -14,3 +14,4 @@ Not true Kristen Berlin Renner He's not listening to the truth of the infadel
 
 I'm a rough tough bitch at Walt Disney World
 
+Meme
